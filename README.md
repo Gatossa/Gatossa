@@ -6,5 +6,5 @@
 
 👯 I’m looking to collaborate on new projects in a new company
 
-⚡ Fun fact: I love playing drums (still learning.....:wink: )
+⚡ Fun fact: I love playing drums (still learning..... 😉 )
 
