@@ -4,7 +4,7 @@
 
 :sweat_drops: At present I am working on mastering Postman.
 
-👯 I’m looking to collaborate on new projects in a new company
+👯 I’m looking to collaborate on new projects in a new company.
 
-⚡ Fun fact: I love playing drums (still learning..... 😉 )
+⚡ Fun fact: I love playing drums (still learning..... 😉 ).
 
